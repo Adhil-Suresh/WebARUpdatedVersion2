@@ -1,1 +1,0 @@
-# WebARUpdatedVersion2
